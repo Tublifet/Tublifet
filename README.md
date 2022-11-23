@@ -1,4 +1,4 @@
-### **Heyyyyoooo!! :fire:
+## Heyyyyoooo!! :fire:
 
 :woman: I'm Nguyen Mai Thanh Truc!
 
